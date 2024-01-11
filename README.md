@@ -1,3 +1,3 @@
 # Marcus
-veldig lærling 👍
+veldig lærling 👍\n
 provbasen er funny 
