@@ -1,5 +1,5 @@
 # Marcus
-veldig lærling 👍
+veldig nyutdannet fagarbeider 👍
 <br>
 provbasen er IKKE funny 
 
